@@ -1,1 +1,0 @@
-# Fnp_salea-Analysis
